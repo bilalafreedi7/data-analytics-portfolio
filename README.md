@@ -30,5 +30,5 @@ Recent Business & Data Analytics graduate from UMass Boston with hands-on experi
 
 ### 📫 Connect With Me
 - **Email:** bilalafreedi7@gmail.com
-- **LinkedIn:** [Your LinkedIn Profile URL]
+- **LinkedIn:** www.linkedin.com/in/bilal-afreedi/
 - **Location:** Boston, MA
